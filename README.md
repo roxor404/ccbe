@@ -1,3 +1,1 @@
-# ccbe bapak kau jamping
-Iyhdmdmdmdm
-Nope
+Bismilah og
